@@ -1,5 +1,5 @@
 
-Hi, I am Flight Lieutenant Swati (Retd) and this is my first time hosting my own personal website. Check it out and feel free to get connected! 
+Hi, I am Flight Lieutenant Swati (Retd) and this is my first time hosting my own personal website. Check it out and feel free to connect! 
 Thank you html5up.net for such cool template. :)
 
 
